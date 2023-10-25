@@ -1,9 +1,5 @@
 ### Hi there 👋
 
-**naanndaaww/naanndaaww** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
 i'm  **Nanda Ayu Astarika**.<br>
 
 i'm a **student**  [Politeknik Negeri Jember](https://polije.ac.id/).<br>
