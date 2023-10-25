@@ -4,7 +4,6 @@
 
 Here are some ideas to get you started:
 
-
 i'm  **Nanda Ayu Astarika**.<br>
 
 i'm a **student**  [Politeknik Negeri Jember](https://polije.ac.id/).<br>
