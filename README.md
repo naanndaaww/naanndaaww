@@ -2,7 +2,7 @@
 
 i'm  **Nanda Ayu Astarika**.<br>
 
-i'm a **student**  [Politeknik Negeri Jember](https://polije.ac.id/).<br>
+i'm a **student** at [Politeknik Negeri Jember](https://polije.ac.id/).<br>
 
 I am pursuing a degree in **computer engineering**.<br>
 
