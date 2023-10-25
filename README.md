@@ -4,7 +4,6 @@
 
 Here are some ideas to get you started:
 
-# Halo semua! 
 
 i'm  **Nanda Ayu Astarika**.<br>
 
